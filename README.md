@@ -16,7 +16,7 @@
 
 - 🤝 I’m looking for help with **DSA,LeetCode**
 
-- 📫 How to reach me **kandukuriabhinav842@gmail.com**
+- 📫 How to reach me **abhinavkandukuri05@gmail.com**
 
 - ⚡ Fun fact **5AM gym routine**
 
