@@ -18,7 +18,7 @@
 
 - 📫 How to reach me **abhinavkandukuri05@gmail.com**
 
-- ⚡ Fun fact **5AM gym routine**
+- ⚡ **5AM gym routine**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
